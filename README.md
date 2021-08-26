@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **kevin.arian3003@gmail.com**
 
-- ⚡ Hobbies **I love anime and japanese culture and videogames (playing them and also interested in how they are made!)**
+- ⚡ Hobbies **I love anime and japanese culture and videogames (playing them and also interested in how are they made!)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
